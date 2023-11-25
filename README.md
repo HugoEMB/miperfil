@@ -62,7 +62,7 @@
 * Inglés - Avanzado
 
 #### Educación
-* IMA - Ingeniero Mecánico Administrador
+* IMA - Ingeniero Mecánico Administrador (2012-2017) Instituto Tecnológico y de Estudios Superiores de Monterrey - Campus Chihuahua
 
 
 
